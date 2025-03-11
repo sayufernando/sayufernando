@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate in projects that will inspire me with my career goals
 - 📫 How to reach me: sayumijl2001@gmail.com 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm into creative writing too. So, if you're looking for a freelancer hit me up!
+- ⚡ Fun fact: I'm into creative writing too. So, if you're looking for a freelancer writer hit me up!
 
 <!---
 sayufernando/sayufernando is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
